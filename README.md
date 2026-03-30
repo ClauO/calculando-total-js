@@ -1,0 +1,6 @@
+## Integrantes
+
+* TOMÁS KONIG
+* ALEXIS OYARZÚN
+* JOSÉ ESTAY
+* CLAUDIA OSSES
